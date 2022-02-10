@@ -2,7 +2,7 @@
 
 I am a fresh graduate with bachelor degree in Informatics major from MDP University. I am really passionate about Graphic Design, UI Design (Android / Web Design), also Web Development.
 
-💬 Get in touch with me: here my [linkedin](https://www.linkedin.com/in/mettasaputra/)
+💬 Get in touch with me: here my [linkedin](https://www.linkedin.com/in/mettasaputra/) , [dribbble](https://dribbble.com/mettasaputra) , [instagram](https://instagram.com/mettasaputra02)
 
 
 **My Interest:**  
