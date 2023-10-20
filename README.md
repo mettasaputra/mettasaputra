@@ -1,7 +1,10 @@
 ### Hi there 👋
 
-I am a fresh graduate with bachelor degree in Informatics major from MDP University. I am really passionate about Graphic Design, UI Design (Android / Web Design), also Web Development.
+Hi! I am Metta (she/her), I am working as an UI/UX Designer at TANIYUK, also Web Development freelancer. I am majoring in informatics. I proved that I can work in Tech field! 
 
+I am ready for a conversation. Feel free to contact me at direct message or my email : its.mettasaputra@gmail.com
+
+Let's connect!
 💬 Get in touch with me: here my [linkedin](https://www.linkedin.com/in/mettasaputra/) , [dribbble](https://dribbble.com/mettasaputra) , [instagram](https://instagram.com/mettasaputra02)
 
 
