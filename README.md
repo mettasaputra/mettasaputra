@@ -1,8 +1,6 @@
 ### Hi there 👋
 
-Hi! I am Metta (she/her), I am working as an UI/UX Designer at TANIYUK, also Web Development freelancer. I am majoring in informatics. I proved that I can work in Tech field! 
-
-I am ready for a conversation. Feel free to contact me at direct message or my email : its.mettasaputra@gmail.com
+Hi! I am Metta (she/her)
 
 Let's connect!
 💬 Get in touch with me: here my [linkedin](https://www.linkedin.com/in/mettasaputra/) , [dribbble](https://dribbble.com/mettasaputra) , [instagram](https://instagram.com/mettasaputra02)
